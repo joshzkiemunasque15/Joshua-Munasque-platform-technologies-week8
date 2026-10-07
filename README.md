@@ -1,1 +1,0 @@
-# Joshua-Munasque-platform-technologies-week8
